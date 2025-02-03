@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c# and Unity 
 - 💞️ I’m looking to collaborate on Nuthin
 - 📫 How to reach me Not (hopefully)
-- 😄 Pronouns: What does this mean
+- 😄 Pronouns: I dont mind what i get called, as long as it isnt rude :)
 - ⚡ Fun fact: I am a fool
 
 <!---
